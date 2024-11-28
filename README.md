@@ -1,6 +1,6 @@
 # GOHAHA机场官网地址
 
-最新地址：[90hahas.top](https://90hahas.top/index.php#/register?code=K1u6FFdf)
+最新地址：[90hahas.top](https://90hah.top/#/register?code=K1u6FFdf)
 
 ## GOHAHA介绍
 
